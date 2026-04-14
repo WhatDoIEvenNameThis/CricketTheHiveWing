@@ -18,7 +18,7 @@ Fandoms I'm in : Die of Death,Termination Proctol,Wings of Fire,Evade,Warrior Ca
 
 🌺 ` Cricket and Avoider Fictionkin
 
-I LOVE reading and learning and science is my profession but I have bad memory so don't be shocked if I accidentally forget things alot .
+I'm kinda forgetful so don't be shocked by frequent forgetfulness
 
 ` My comfort characters are Devesto,BrightHeart and Bobo ,,
 
