@@ -9,6 +9,8 @@
 
 .
 
+🐝
+
 [Dni] : Proshippers,MAP,below 14 y.o or above 25,WEIRD yumeshippers,or are known for being problematic and not planning on changing]
 
 [Int] : Everyone can unless in my dni list or I'm clearly upset (Which I VERY RARELY am)
@@ -17,15 +19,15 @@ Fandoms I'm in : Die of Death,Termination Proctol,Wings of Fire,Evade,Warrior Ca
 
 !! DNC my skins unless it's gifted
 
-🌺 ` Cricket and Avoider Fictionkin
+🌺 Cricket and Avoider Fictionkin
 
-I'm kinda forgetful so don't be shocked by frequent forgetfulness
+😮‍💨 I'm kinda forgetful so don't be shocked by frequent forgetfulness
 
-My comfort characters are Devesto,BrightHeart and Bobo ! :D
+❤️‍🩹 My comfort characters are Devesto,BrightHeart and Bobo ! :D
 
 🐝🐈🐲🦋 ~ I love cats,bees,dragons and moths !
 
-🍕🍟🌮 ~ I love lots of food yum
+🍕🍟🌮🥓 ~ I love lots of foods yum
 
 Idk what else to put here but if you wanna know more abt me you must get to know me ok bye
 
