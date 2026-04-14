@@ -22,7 +22,9 @@ I'm kinda forgetful so don't be shocked by frequent forgetfulness
 
 ` My comfort characters are Devesto,BrightHeart and Bobo ,,
 
-🐝🐈🐲🦋 ~ I love cats,bees,dragons and moths .
+🐝🐈🐲🦋 ~ I love cats,bees,dragons and moths !
+
+🍕🍟🌮 ~ I love lots of food yum
 
 (WARNING SHIP OPINIONS OOO SCARY /sarc)
 
