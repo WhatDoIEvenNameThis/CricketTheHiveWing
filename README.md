@@ -29,6 +29,7 @@ I LOVE reading and learning and science is my profession but I have bad memory s
 Favorite ships : Devsuer,DigniZuka,IntrovertTricks,SunWillow,and probably some others I forgot :P
 
 Idk what else to put okay byeEeeE
+
 ![Screenshot_20260412_174936_Chrome](https://github.com/user-attachments/assets/a48a4487-1408-4f1f-aacc-837466496997)
 
 
